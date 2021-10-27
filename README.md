@@ -1,0 +1,1 @@
+# qb-xdcrore-pvp-server-fivem
